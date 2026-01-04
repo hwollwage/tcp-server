@@ -17,4 +17,4 @@
 ![alt text](img/image-5.png)
 
 ## 2nd echo (gibran & 19 mill promises) (plain text)
-![alt text](img/image-5.png)
+![alt text](img/image-4.png)
